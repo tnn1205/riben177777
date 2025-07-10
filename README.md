@@ -22,4 +22,4 @@
 
 如果你正在寻找一个真正值得收藏的日本AV平台，现在就是最好的时机。成人羞羞免费，永久免费、不限次数观看，只为真正热爱内容的你打造专属观影天堂。
 
-<span style="display:none;">[Canonical link]  ( ）</span> 
+<span style="display:none;">[Canonical link]  ( https://github.com/tnn1205/riben177777 ）</span> 
